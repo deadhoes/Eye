@@ -1,2 +1,0 @@
-# Eyeaaa
-The Best Script.
